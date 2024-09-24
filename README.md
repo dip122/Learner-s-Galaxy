@@ -1,6 +1,6 @@
 # Learner-s-Galaxy
 
-# Link : 
+# WebSite Link : 
 https://learnersgalaxy.ai/
 
 # Linkedin : 
